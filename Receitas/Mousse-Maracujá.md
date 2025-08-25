@@ -1,3 +1,5 @@
+### Uma releitura sofisticada do clássico doce junino: morangos suculentos, envolvidos num brigadeiro branco aveludado feito com Leite Condensado MOÇA®, Creme de Leite NESTLÉ® e Leite NINHO® Forti+ em pó. Por fora, uma camada de açúcar tingida de vermelho que forma uma casquinha crocante e brilhante.
+
 # Ingredientes
 
 - 2 xícaras de concentrado de maracujá
