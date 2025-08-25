@@ -42,4 +42,4 @@ Calda de Açúcar
 
 - 11. Deixe secar naturalmente até a calda firmar completamente e sirva.
 
-[Fonte](https://www.receitasnestle.com.br/receitas/receita-morango-amor?gclsrc=aw.ds&gad_source=1&gad_campaignid=22170581486&gbraid=0AAAAADOjNpWZzcGg9-5PvGnqAh38VDMcQ&gclid=CjwKCAjwk7DFBhBAEiwAeYbJsdv1e9K0Tnrtg9EOeVp8NDEgc2UoDksPezu2pGXILSmR_9TzD7UbxRoCcTAQAvD_BwE)\
+[Fonte](https://www.receitasnestle.com.br/receitas/receita-morango-amor?gclsrc=aw.ds&gad_source=1&gad_campaignid=22170581486&gbraid=0AAAAADOjNpWZzcGg9-5PvGnqAh38VDMcQ&gclid=CjwKCAjwk7DFBhBAEiwAeYbJsdv1e9K0Tnrtg9EOeVp8NDEgc2UoDksPezu2pGXILSmR_9TzD7UbxRoCcTAQAvD_BwE)
